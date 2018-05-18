@@ -10,11 +10,13 @@ Thought you were with the criminals, they attacked you. 1 against 2 wasn't a goo
 
 The older one held you by your arms from behind, while the younger one took off your belt.
 
-He took the taser from your belt, and tased you with your own taser. When you woke up, you were cuffed to the pipework here with your own cuffs.
+You tried to kick him, but he caught your leg by the ankle. He took your own taser out from your belt, pressed it against your thight he caught.
+
+"Sleep tight", he said and pressed the button, tased you with your own taser. When you woke up, you were cuffed to the pipework here with your own cuffs.
 
 After that, although they realized you were not a criminal, they still thought you are in their way.
 
-And you thought they are dumb, so you never got along with them.
+And you thought they were dumb, so you never got along with them.
 
 Shook yourself off from the memory, you got up, and realized there were a pile of clothing beside you. They left you with a t-shirt, a mini-skirt, and a pair of heels.
 
