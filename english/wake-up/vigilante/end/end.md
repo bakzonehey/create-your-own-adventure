@@ -10,9 +10,9 @@ Thought you were with the criminals, they attacked you. 1 against 2 wasn't a goo
 
 The older one held you by your arms from behind, while the younger one took off your belt.
 
-You tried to kick him, but he caught your leg by the ankle. He took your own taser out from your belt, pressed it against your thight he caught.
+You tried to kick him, but he caught your leg by the ankle. He took your taser out from your belt, pressed it against your thigh he caught in his other arm.
 
-"Sleep tight", he said and pressed the button, tased you with your own taser. When you woke up, you were cuffed to the pipework here with your own cuffs.
+"Sleep tight", he said and pressed the button, tased you with your own taser. When you woke up, you were cuffed to the pipework here with your own cuffs, a patch of thigh skin burnt...
 
 After that, although they realized you were not a criminal, they still thought you are in their way.
 
