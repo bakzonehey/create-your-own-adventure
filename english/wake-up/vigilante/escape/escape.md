@@ -12,7 +12,7 @@ His gaze ran from your bare feet, then your bare legs, and stopped at your chest
 
 You suddenly felt self-conscious of how ridiculous you must looked, stripped of everything except the skin-tight, deep-v leotard.
 
-"Finally awake? How many time was that now? You must have hold the record of most knocked out vigilante of something by now..." 
+"Finally awake? How many time was that now? You must have hold the record of most knocked out vigilante or something by now..." 
 
 Anger and shame rushed through you, and you realized your error a second too late.
 
