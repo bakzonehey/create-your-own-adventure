@@ -2,7 +2,7 @@ You opened your eyes suddenly as if awaken from a bad dream, and remembered it w
 
 You saw a pair of bare legs, and a cleavage revealed underneath unzipped leotard.
 
-You found out you were looking at yourself, arms and legs tied up in a sitting position in a metal a chair.
+Then you realized you were looking at yourself, with arms and legs tied up in a sitting position in a metal a chair.
 
 Your captor must have found you lying on the floor, and decided to tie you up this way.
 
