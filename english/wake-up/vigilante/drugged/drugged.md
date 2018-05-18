@@ -6,7 +6,7 @@
 
 You thought you heard someone were having a conversation beside you...
 
-"She wears our emblem! For fxxk sake! And all she did is got herself captured and stripped half naked! Give us the bad names..."
+"She wears our emblem! For fxxk sake! And all she did was to get herself captured and stripped half naked! Give us the bad names..."
 
 "She wears a leotard, she is half naked before being stripped..."
 
