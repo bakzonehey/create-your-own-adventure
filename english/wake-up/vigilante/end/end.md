@@ -28,7 +28,7 @@ It was near mid-night, no one was in the building. You went down to street level
 
 You were startled by the voice came out behind you, and turned toward the voice.
 
-"Oh is that really you? That vigilante lady?" the voice said when he saw the emblem on the left chest of your bodysuit.
+"Oh is that really you? That vigilante lady?" the voice said when he saw the emblem on the left chest of your leotard.
 
 "I bet she lost a fight, got stripped off and left unconscious here. Now she has to go home dressed like that!" Another voice said behind you.
 
