@@ -8,7 +8,7 @@ You sighed, and turned toward the door of your cell.
 
 At that moment the door swung open, the huge guy you fought before were standing there.
 
-His gaze ran from your bare feet and stopped at your chest, a dark smile appeared on his face.
+His gaze ran from your bare feet, then your bare legs, and stopped at your chest, a dark smile appeared on his face.
 
 You suddenly felt self-conscious of how ridiculous you must looked, stripped of everything except the skin-tight, deep-v leotard.
 
