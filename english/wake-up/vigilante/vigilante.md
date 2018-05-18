@@ -1,16 +1,16 @@
 You slowly open your eyes and found yourself in a dimly lit room, lying on an uncomfortable bed.
 
-You found your right hand is cuffed to the side of the bed.
+You found your right hand cuffed to the side of the bed.
 
 You also found yourself feeling quite dizzy, you captor must have drugged you after he knocked you out.
 
-Looking for clues, you were investigating a warehouse.
+You were investigating a warehouse looking for clues.
 
-That huge guy came out of no where and start attcking you.
+A huge guy came out of nowhere and started attcking you.
 
-Being the more skillful fighter, you hit him twice and then kicked him in the face.
+Being the more skillful fighter, you punched him twice and then kicked him once, all in the face.
 
-But that seems to have little effect on him, he counter with a back-hand swing, and hit you on the side of your head.
+But that seems to have little effect on him, he countered with a back-hand swing, and hit you on the side of your head.
 
 The next thing you remember is the strange dream of marshmallow and deserted island.
 
