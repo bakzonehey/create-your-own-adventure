@@ -10,7 +10,7 @@ A huge guy came out of nowhere and started attcking you.
 
 Being the more skillful fighter, you punched him twice and then kicked him once, all in the face.
 
-But that seems to have little effect on him, he countered with a back-hand swing, and hit you on the side of your head.
+But that seemed to have little effect on him, he countered with a back-hand swing, and hit you on the side of your head.
 
 The next thing you remember is the strange dream of marshmallow and deserted island.
 
