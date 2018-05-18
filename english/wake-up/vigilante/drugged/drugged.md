@@ -24,6 +24,6 @@ With your head hanged up side down behind the person carrying you, blood still f
 
 You forgot you were about to protest how the hands were touching your butts and between your thighs.
 
-"...id you notice how she found the criminals before we do, every ti..."
+"...id you notice? She found the criminals before we do, every ti..."
 
 Your world [turn complete dark](../end/end.md) again.
