@@ -12,4 +12,4 @@ But these were not going to stop you, you quickly got on your feet.
 
 Then a sereve dizziness hit you. The drug was stronger than you expected.
 
-Your world [turn complete dark](../vigilante.md) again.
+Your world [turn complete dark](../wentdown/wentdown.md) again.
