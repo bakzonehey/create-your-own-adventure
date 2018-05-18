@@ -1,4 +1,4 @@
-You slowly open your eyes and found yourself in a dimly lit room, lying on an uncomfortable bed.
+You slowly opened your eyes and found yourself in a dimly lit room, lying on your back in an uncomfortable bed.
 
 You found your right hand cuffed to the side of the bed.
 
