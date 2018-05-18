@@ -2,7 +2,7 @@ The ropes were nothing to someone with your skills, you quickly untied yourself 
 
 You instinctively reached for the chest of your bodysuit, and found that the zipper was broken, you could not zip up.
 
-You looked around your cell, and your boots nor your mask were no where to be seen.
+You looked around your cell, and your boots nor your mask were anywhere to be seen.
 
 You sighed, and turned toward the door of your cell.
 
