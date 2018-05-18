@@ -1,6 +1,6 @@
 The ropes were nothing to someone with your skills, you quickly untied yourself and stood up.
 
-You instinctively reached for the chest of your bodysuit, and found that the zipper was broken, you could not zip up.
+You instinctively reached for the chest of your leotard, and found that the zipper was broken, you could not zip up.
 
 You looked around your cell, neither your boots nor your mask were anywhere to be seen.
 
