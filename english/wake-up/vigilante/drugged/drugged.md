@@ -22,6 +22,8 @@ You felt someone pull your arms over, and flipped you belly down onto someone's 
 
 With your head hanged up side down behind the person carrying you, blood still filled with drugs flowed toward your brain...
 
+You forgot you were going to protest how the hands were touching your butts and between your thights.
+
 "...id you notice how she found the criminals before we do, every ti..."
 
 Your world [turn complete dark](../end/end.md) again.
