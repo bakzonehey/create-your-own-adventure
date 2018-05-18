@@ -1,4 +1,4 @@
-The ropes were nothing to someone with your skill, you quickly untied yourself and stood up.
+The ropes were nothing to someone with your skills, you quickly untied yourself and stood up.
 
 You instinctively reached for the chest of your bodysuit, and found that the zipper was broken, you could not zip up.
 
