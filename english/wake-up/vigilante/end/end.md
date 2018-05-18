@@ -4,13 +4,13 @@ Mildly surprised that your limbs were free, you sat up carefully.
 
 You found yourself in the roof top of a worn down commerical building in downtown, and you immediately knew what happened.
 
-You first met the 2 male vigilante right here, both them and you were chasing the same lead.
+You first met the 2 male vigilantes right here, both them and you were chasing the same lead.
 
-Thought you were with the criminals, they attacked you. 1 against wasn't a good odd.  And both of them were stronger than you.
+Thought you were with the criminals, they attacked you. 1 against 2 wasn't a good odd. Especially when both of them were stronger than you.
 
 The older one held you by your arms from behind, while the younger one took off your belt.
 
-He took the taser from your belt, and tased you with your own taser. When you woke up, you were cuffed to the pipework here.
+He took the taser from your belt, and tased you with your own taser. When you woke up, you were cuffed to the pipework here with your own cuffs.
 
 After that, although they realized you were not a criminal, they still thought you are in their way.
 
@@ -28,6 +28,6 @@ You were startled by the voice came out behind you, and turned toward the voice.
 
 "Oh is that really you? That vigilante lady?" the voice said when he saw the emblem on the left chest of your bodysuit.
 
-"I bet she lost a fight, got stripped off and left unconscious here. Now she has to go home dressing like that!" Another voice said behind you.
+"I bet she lost a fight, got stripped off and left unconscious here. Now she has to go home dressed like that!" Another voice said behind you.
 
 "Now surrender, bitch!" The person in front of you said, while took out a pistol and pointed at you.
