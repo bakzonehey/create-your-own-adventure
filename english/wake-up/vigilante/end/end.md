@@ -14,7 +14,7 @@ You tried to kick him, but he caught your leg by the ankle. He took your taser o
 
 "Sleep tight", he said and pressed the button, tased you with your own taser. When you woke up, you were cuffed to the pipework here with your own cuffs, a patch of thigh skin burnt...
 
-After that, although they realized you were not a criminal, they still thought you are in their way.
+After that, although they realized you were not a criminal, they still thought you were in their way.
 
 And you thought they were dumb, so you never got along with them.
 
