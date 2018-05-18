@@ -8,9 +8,9 @@ You thought you heard someone were having a conversation beside you...
 
 "She wears our emblem! For fxxk sake! And all she did is got herself captured and stripped half naked! Give us the bad names..."
 
-"Hush! I think she's awake... no, not yet..."
+"She wears a leotard, she is half naked before being stripped..."
 
-"How can she sleep like not a care in the world, while in reality she's captured by dangerous criminals?"
+"How can she sleep like there is not a care in the world, while in reality she's captured by dangerous criminals?"
 
 "She was drugged, that's different..."
 
