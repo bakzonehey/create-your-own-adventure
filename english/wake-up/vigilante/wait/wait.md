@@ -1,6 +1,6 @@
 You lied down and started breathing carefully, trying to gather your strength.
 
-Then you heard the door to your cell opened, footsteps coming toward the bed you were cuffed to.
+Then you heard the door to your cell opened, footsteps came toward the bed you were cuffed to.
 
 With you eyes closed, you kept still and waited.
 
