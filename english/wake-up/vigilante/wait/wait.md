@@ -1,8 +1,8 @@
 You lied down and started breathing carefully, trying to gather your strength.
 
-Then you heard the door to your cell opened, footsteps coming toward the bed you were tied to.
+Then you heard the door to your cell opened, footsteps coming toward the bed you were cuffed to.
 
-With you eyes closed, you kept still and wait.
+With you eyes closed, you kept still and waited.
 
 "Looks like she will wake up anytime now... this should keep her behave..."
 
