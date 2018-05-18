@@ -4,7 +4,7 @@ You saw a pair of bare legs, and a cleavage revealed underneath unzipped leotard
 
 Then you realized you were looking at yourself, with arms and legs tied up in a sitting position in a metal a chair.
 
-Your captor must have found you lying on the floor, and decided to tie you up this way.
+Your captor must have found you unconscious on the floor, and decided to tie you up this way.
 
 You found yourself feeling less dizzy, you captor did not drug you again after you fainted, which had to be a good sign.
 
