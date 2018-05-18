@@ -10,7 +10,7 @@ At that moment the door swung open, the huge guy you fought before were standing
 
 His gaze ran from your bare feet and stopped at your chest, a dark smile appeared on his face.
 
-You suddenly felt self-conscious of how ridiculous you must looked, stripped of everything except the skin-tight, deep-v leotart.
+You suddenly felt self-conscious of how ridiculous you must looked, stripped of everything except the skin-tight, deep-v leotard.
 
 "Finally awake? How many time was that now? You must have hold the record of most knocked out vigilante of something by now..." 
 
