@@ -1,10 +1,10 @@
 "...ick, help me untie her ankles..."
 
-"...llow herself be captured again, Bruc..."
+"...ruce, can you zip her up? That's distracting..."
+
+"...no, the zipper was broken..."
 
 You thought you heard someone were having a conversation beside you...
-
-"...you are too harsh..."
 
 "She wears our emblem! For fxxk sake! And all she did is got herself captured and stripped half naked! Give us the bad names..."
 
