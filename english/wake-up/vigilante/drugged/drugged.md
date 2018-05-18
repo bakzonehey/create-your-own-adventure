@@ -24,4 +24,4 @@ With your head hanged up side down behind the person carrying you, blood still f
 
 "...id you notice how she found the criminals before we do, every ti..."
 
-Your world [turn complete dark](..end/end.md) again.
+Your world [turn complete dark](../end/end.md) again.
