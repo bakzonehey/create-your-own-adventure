@@ -1,4 +1,4 @@
-The handcuff is nothing to someone with your skill, you quickly uncuff yourself and sit up.
+The handcuff is nothing to someone with your skill, you quickly uncuff yourself and sat up.
 
 You instinctively reached for your face, and found your mask was gone.
 
