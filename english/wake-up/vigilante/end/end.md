@@ -18,7 +18,7 @@ After that, although they realized you were not a criminal, they still thought y
 
 And you thought they were dumb, so you never got along with them.
 
-Shook yourself off from the memory, you got up, and realized there were a pile of clothing beside you. They left you with a t-shirt, a mini-skirt, and a pair of heels.
+Shook yourself off from the memory, you got up, and realized there were a pile of clothing beside you. They left you with a t-shirt, a mini-skirt, a pair of panties, and a pair of heels.
 
 [Change](../changed/changed.md) into civilian clothing the 2 jerks left you.
 
