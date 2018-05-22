@@ -1,0 +1,25 @@
+You don't want to accept any help from the 2 jerks, but you know you have to be practical.
+
+It was near mid-night, no one was in the building. You are sure you can get down to street level without meeting anyone.
+
+Your nearest safe-house 4 blocks away. It is not that far actually, and you can access your apartment on the top floor with the fire escape, no one will see you getting in.
+
+The problem is getting there. It is downtown after all, you cannot walk in downtown without being seen.
+
+Especially when you were wearing nothing else but your skin-tight vigilante leotard, with the front zipper broken. You lost your mask and boots when you were captrued the night before.
+
+You examined the short t-shirt and even shorter mini-skirt, you looked around and found the camera the 2 jerks left behind.
+
+"Perv!" you said to yourself, and threw the camera to the other side of the elevator machine room.
+
+Tapped the correct code on an invisible keypad on the left forearm of your leotard, the smart fabric started detaching itself from your arms and waist, allowing you to peel the leotard off.
+
+You stood momentarily naked, but you knew you were well hidden here. You quickly put on the t-shirt and panties, then the mini-skirt.
+
+The short t-shirt and the low-rise mini-skirt exposed a generous portion of your midrif, but even that is better than your incomplete vigilante costumes.
+
+Finally putting on the heels, you went down to street level without incident. You left the building via a backdoor.
+
+Enter the [dark alley](changed/darkalley/darkalley.md) behind the building.
+
+Go to the main street and [walk](changed/safe/safe.md) to your safe-house.
