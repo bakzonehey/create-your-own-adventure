@@ -20,6 +20,6 @@ The short t-shirt and the low-rise mini-skirt exposed a generous portion of your
 
 Finally putting on the heels, you went down to street level without incident. You left the building via a backdoor.
 
-Enter the [dark alley](changed/darkalley/darkalley.md) behind the building.
+Enter the [dark alley](darkalley/darkalley.md) behind the building.
 
-Go to the [main street](changed/main/main.md) and walk to your safe-house.
+Go to the [main street](main/main.md) and walk to your safe-house.
