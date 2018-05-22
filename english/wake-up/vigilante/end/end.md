@@ -6,7 +6,7 @@ You found yourself in the roof top of a worn down commerical building in downtow
 
 You first met the 2 male vigilantes right here, both them and you were chasing the same lead.
 
-Thought you were with the criminals, they attacked you. 1 against 2 wasn't a good odd. Especially when both of them were stronger than you.
+Thought you were with the criminals, they attacked you. 1 against 2 wasn't a good odd. Especially when both of them were skillful fighters, and stronger than you.
 
 The older one held you by your arms from behind, while the younger one took off your belt.
 
