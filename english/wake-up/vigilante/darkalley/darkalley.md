@@ -2,9 +2,9 @@ As a vigilante, you normally would welcome the cover provided by such a dark all
 
 But tonight you felt awlfully exposed in here. You just wished to reach your safe-house as soon as possible.
 
-Not to mention the sewage and dirt you stepped onto with your bare feet.
+And you already tried to ignore the sewage and dirt you stepped onto with your bare feet.
 
-"You shouldn't come here dressed like that, at least put on some shoes"
+"You shouldn't come here dressed like that, at least put on some shoes!"
 
 You were startled by the voice came out behind you, and turned toward the voice.
 
