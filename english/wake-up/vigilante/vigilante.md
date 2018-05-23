@@ -6,6 +6,7 @@ You found your right hand cuffed to the side of the bed.
 
 You also found yourself feeling quite dizzy, you captor must have drugged you after he knocked you out.
 
+Flashback...
 
 You were investigating a warehouse looking for clues.
 
@@ -17,6 +18,7 @@ But that seemed to have little effect on him, he countered with a back-hand swin
 
 The next thing you remember is the strange dream of marshmallow and deserted island.
 
+Flashback ended...
 
 [Lie down](wait/wait.md) again and wait for the effect of the drug to fade...
 
