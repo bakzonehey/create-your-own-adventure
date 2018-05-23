@@ -14,7 +14,9 @@ You examined the short t-shirt and even shorter mini-skirt.  Knowingly you looke
 
 Tapped the correct code on an invisible keypad on the left forearm of your leotard, the smart fabric started detaching itself from your arms and waist, allowing you to peel the leotard off.
 
-You stood momentarily naked, but you knew you were well hidden here. You quickly put on the t-shirt and panties, then the mini-skirt.
+Without the correct code, your leotard cannot be taken off. It is your last line of defense from being stripped completely naked when captured.
+
+But now you stood momentarily naked, knowing that you were well hidden here. You quickly put on the t-shirt and panties, then the mini-skirt.
 
 The short t-shirt and the low-rise mini-skirt exposed a generous portion of your midrif, but even that would attract less attention than your incomplete vigilante costumes.
 
