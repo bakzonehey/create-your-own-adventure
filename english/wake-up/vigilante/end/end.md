@@ -22,4 +22,4 @@ Shook yourself off from the memory, you got up, and realized there were a pile o
 
 [Change](../changed/changed.md) into the civilian clothing that 2 jerks left for you.
 
-[Ignore](../darkalley/darkalley.md) the civilian clothing that 2 jerks left for you.
+[Ignore](../ignored/ignored.md) the civilian clothing that 2 jerks left for you.
