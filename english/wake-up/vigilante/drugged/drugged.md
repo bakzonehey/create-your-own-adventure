@@ -8,7 +8,7 @@ You thought you heard someone were having a conversation beside you...
 
 "She wears our emblem! For fxxk sake! And all she did was to get herself captured and stripped half naked! Give us the bad names..."
 
-"She wears a leotard, she is half naked before being stripped..."
+"She wears a leotard, she is half naked before being stripped... By the way did you notice? She's never completely naked, they always leave her with the leotard..."
 
 "How can she sleep like there is not a care in the world, while in reality she's captured by dangerous criminals?"
 
