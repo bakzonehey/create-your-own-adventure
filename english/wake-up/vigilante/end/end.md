@@ -20,6 +20,6 @@ And you thought they were dumb, so you never got along with them.
 
 Shook yourself off from the memory, you got up, and realized there were a pile of clothing beside you. They left you with a t-shirt, a mini-skirt, a pair of panties, and a pair of heels.
 
-[Change](../changed/changed.md) into the civilian clothing that 2 jerks left you.
+[Change](../changed/changed.md) into the civilian clothing that 2 jerks left for you.
 
-[Ignore](../darkalley/darkalley.md) the civilian clothing that 2 jerks left you.
+[Ignore](../darkalley/darkalley.md) the civilian clothing that 2 jerks left for you.
