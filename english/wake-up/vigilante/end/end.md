@@ -2,7 +2,7 @@ You slowly opened your eyes and felt a sereve headache, half expecting to be sti
 
 Mildly surprised that your limbs were free, you sat up carefully.
 
-You found yourself in the roof top of a worn down commerical building in downtown, and you immediately knew what happened.
+You found yourself in the roof top of a worn down commerical building at the edge of downtown, and you immediately knew what happened.
 
 You first met the 2 male vigilantes right here, both them and you were chasing the same lead.
 
